@@ -1,1 +1,1 @@
-# Jurgen-Siegel
+# Jurgen Siegel
